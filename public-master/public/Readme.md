@@ -1,1 +1,0 @@
-For educational & Testing purposes only
